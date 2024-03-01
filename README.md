@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @uniquebik
+- 👀 I’m interested in Information Techonology field specially Network.
+- 🌱 I’m currently learning microtek and CCNA from basic.
+- 📫 if anyone have better video simple and effectively can be contract me @ uniquebik@gmail.com
